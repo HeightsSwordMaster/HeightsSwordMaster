@@ -9,4 +9,4 @@ Send me stuff or ask me anythin on strawpage!! --
 [Strawpage !](https://thheights.carrd.co.com)
 
 ㅤㅤㅤ
-I can't code @_@
+<p align="center">I can't code @_@</p>
