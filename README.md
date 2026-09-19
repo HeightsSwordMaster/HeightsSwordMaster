@@ -1,5 +1,12 @@
 ## <p align="center">Hihihihihi! welcome to my readme</p>
 
-<p align="center">Thank you @pt-of-forsaken for the title!!</p>
+<p align="center">Thank you @pt-of-forsaken for the title!! ^^ </p>
+ㅤㅤㅤ
 
+Info on [CC.Pronous!](https://pronouns.cc/@Chicken) and [Card Co!](https://thheights.carrd.co.com) ? ^^ 
 
+Send me stuff or ask me anythin on strawpage!! --
+[Strawpage !](https://thheights.carrd.co.com)
+
+ㅤㅤㅤ
+I can't code @_@
